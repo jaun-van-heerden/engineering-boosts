@@ -1,6 +1,6 @@
 ### Engineering Boost Sheet - Handbook for Success
 
-Let’s start expanding the first section. Once you’re satisfied with the level of detail, let me know, and we’ll move on to the next section.
+Simplicity = Genius.
 
 ---
 
